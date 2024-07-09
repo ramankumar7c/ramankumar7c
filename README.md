@@ -9,8 +9,6 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/ramankumar7c](https://github.com/ramankumar7c)
 
-- 📫 How to reach me **ramankumar7c@gmail.com**
-
 - 📄 Know about my experiences [https://drive.google.com/file/d/1XyNTTOo1Y3mjfO5x2dVcr9F-dkJMJrlU/view?usp=drive_link](https://drive.google.com/file/d/1XyNTTOo1Y3mjfO5x2dVcr9F-dkJMJrlU/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
