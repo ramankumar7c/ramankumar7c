@@ -7,7 +7,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/ramankumar7c](https://github.com/ramankumar7c)
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1XyNTTOo1Y3mjfO5x2dVcr9F-dkJMJrlU/view?usp=drive_link](https://drive.google.com/file/d/1XyNTTOo1Y3mjfO5x2dVcr9F-dkJMJrlU/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1SCa9Tpg-oRoI7lH7DcPuMKzZfkSkZLCQ/view?usp=sharing](https://drive.google.com/file/d/1SCa9Tpg-oRoI7lH7DcPuMKzZfkSkZLCQ/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
